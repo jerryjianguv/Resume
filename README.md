@@ -1,7 +1,4 @@
-## Youwei Jiang Resume & Introduction
-
-**[My Resume (PDF)](https://example.com/your-resume.pdf)**
-
+## Youwei Jiang Introduction
 
 **[LinkedIn](https://www.linkedin.com/in/jerryjianguv/)**
 
